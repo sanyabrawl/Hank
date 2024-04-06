@@ -1,2 +1,1 @@
-Написал(изменил)
-;f;f;;ffff;;f
+dafdasffaadf
